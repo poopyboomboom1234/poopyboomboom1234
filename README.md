@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @poopyboomboom1234
+- 👀 I’m interested in YOUR MOM (LOL)
+- 🌱 I’m currently learning how to fart silently
+- 💞️ I’m looking to collaborate on NOTHINF!!!!!!!!!!!!
+- 📫 How to reach me THROO UR MOM
